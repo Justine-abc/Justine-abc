@@ -2,7 +2,7 @@
 - 👀 I’m interested in Software Engineering
 - 🌱 I’m currently learning Software Engineeering at African Leadership University.(ALU)
 - 💞️ I’m looking to collaborate on different projects involving Frontend, backend, and school activities and projects.
-- 📫 How to reach me use this personal eamil(justineumuhoza74@gmail.com)
+- 📫 How to reach me use this personal email(justineumuhoza74@gmail.com)
 - 😄 Pronouns: ---
 - ⚡ Fun fact : I like music as my therapy, .
 
